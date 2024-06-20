@@ -5,7 +5,9 @@
 
 - 📫 How to reach me **ali.kosarr@hotmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jkBxFnXlX08mo6vl_Fo5fkiXiQpBb6hj/view?usp=sharing](https://drive.google.com/file/d/1jkBxFnXlX08mo6vl_Fo5fkiXiQpBb6hj/view?usp=sharing)
+
+- 📄 Know about my experiences
+<a href="https://www.linkedin.com/in/ali-ko%C5%9Far-a0b82a18b/" target="blank"><img align="center" src="[https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg](https://cdn-icons-png.freepik.com/512/60/60958.png)" alt="https://drive.google.com/file/d/1jkBxFnXlX08mo6vl_Fo5fkiXiQpBb6hj/view?usp=sharing/" height="30" width="40" /></a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
